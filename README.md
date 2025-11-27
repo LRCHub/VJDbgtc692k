@@ -4,7 +4,7 @@
 
 ```lrc
 [00:00.73] (Nah-nah-nah-nah-nah, ready for my show)
-[00:04.28] Okay たちまち独壇場 listen, listen
+[00:04.28] Okay. たちまち独壇場 listen, listen
 [00:07.95] (Nah-nah-nah-nah-nah, ready for my show)
 [00:11.10] 傾け
 [00:17.94] 振り切ろう (Giga, TeddyLoid)
